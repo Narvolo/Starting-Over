@@ -1,2 +1,3 @@
 # Starting-Over
-Start a journey
+
+step 1 get out there start it already
